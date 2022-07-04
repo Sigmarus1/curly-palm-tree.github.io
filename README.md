@@ -1,1 +1,0 @@
-# curly-palm-tree.github.io
